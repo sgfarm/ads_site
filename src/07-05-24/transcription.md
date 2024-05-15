@@ -3,6 +3,8 @@
 
 <iframe src="https://www.youtube-nocookie.com/embed/8VFwA-eTybs?si=-845CP8_g3CyvWvR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen style="width: 100%; height: 100%; border: none; aspect-ratio: 16/9; border-radius: 1rem; background: black"></iframe>
 
+## Transcription
+
 The Bible talks about preserving the testimony of God, so what I'm sharing about Antioch has nothing to do with a boast that we're are anything, but I want people to know what God has done in our midst and the identity that God has given us over the last 30 to 40 years.
 
 I'm going to share our story, how Antioch was founded, things like that, and then I'm going to talk about who God has said we are.
