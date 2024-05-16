@@ -1,3 +1,8 @@
+
+# Deliverance & Spiritual Authority
+
+<iframe src="https://www.youtube-nocookie.com/embed/GyfRRxur4Ac?si=DuxpW84ulurBM9G1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen style="width: 100%; height: 100%; border: none; aspect-ratio: 16/9; border-radius: 1rem; background: black"></iframe>
+
 So, today we are talking about deliverance. Deliverance is casting out demons.
 
 I'll mention a little bit about just spiritual health in general. This morning, I was trying to plan what we were going to do, and I almost felt sick trying to plan it. I thought to myself, "I need to go for a walk." So I went for a walk and just felt like the Holy Spirit was saying, "I want you to teach deliverance today." So I thought, "Okay, great." I felt like he said actually it would be important for Germany, so Jesus, release deliverance in Germany.
