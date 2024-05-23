@@ -8,3 +8,4 @@
 - [08-05-24](./08-05-24/transcription.md)
 - [15-05-24](./15-05-24/transcription.md)
 - [16-05-24](./16-05-24/transcription.md)
+- [22-05-24](./22-05-24/transcription.md)
