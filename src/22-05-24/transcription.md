@@ -25,25 +25,13 @@ Here would be a really simple discipleship day. "Hey guys, how's it going? We're
 
 And you can do this with both a believer and an unbeliever. There's so many times that people have just asked an unbeliever, hey, do you want to read the Bible with me? And then they make it a part of their time of reading the Bible. "Hey, how do you want to apply this this week?" And then they're like, "I'm going to do this." And you're like, okay, great. And then you have unbelievers obeying God. And they start to learn the ways of God. And then after a few times reading the Bible, they realize, I think I want to give my life to Jesus. This is what I'm called to do. I'm made to obey Jesus. And they give their lives to Jesus.
 
-And then some believers, a lot of times, it's like we've gotten over-trained almost. Like we've gotten a lot of knowledge, but not a lot of actually applying. And they need the challenge to actually do it. So you might be with them, and they'll be like, yeah, that's good. We read about prayer this week. And I'm like, how are you going to apply that? And they're like, well, I'm going to pray this week. And then I'm going to be like, well, when?
+And then some believers, a lot of times, it's like we've gotten over-trained almost. Like we've gotten a lot of knowledge, but not a lot of actually applying. And they need the challenge to actually do it. So you might be with them, and they'll be like, "yeah, that's good." If we read about prayer this week, I'll be like, "how are you going to apply that?" And they're like, "well, I'm going to pray this week." And then I'm going to be like, "well, when?"
 
-And they're going to be like, what do you mean when? I'm like, when? Like, when are you going to actually do that? Like, I want to know if you're going to, like, I want to help keep you accountable to do that. Not because I want to put an expectation on somebody, like, or a shame thing on them. But because I love them, I want them to become obedient to Jesus. And I want to help them get there. It's all about helping people become obedient to Jesus.
+And they're going to be like, "what do you mean when?" I'm like, "when?" Like, when are you going to actually do that? I want to help keep you accountable to do that. Not because I want to put an expectation on somebody, like, or a shame thing on them. But because I love them, I want them to become obedient to Jesus. And I want to help them get there. It's all about helping people become obedient to Jesus.
 
-Okay. And this is kind of long to write down. Maybe I'll write it down later. But my like working definition of discipleship is one person helping another person become a lifelong obedient follower of Jesus who in turn helps others do the same. A disciple is somebody who
+Okay. And this is kind of long to write down. Maybe I'll write it down later. But my working definition of discipleship is one person helping another person become a lifelong obedient follower of Jesus who in turn helps others do the same.
 
-who helps others become a lifelong obedient follower of Jesus, who in turn helps others do the same. What? Yeah. Okay. Disciple. It's going to take a while. I'm going to do it though. Okay.
-
-A lifelong obedience. Oh, I skipped a part. Dang it. I'm going to put it up here. Yeah, yeah, yeah. Somewhat a... I'm messing this up too much. Let me try this again.
-
-Okay. Someone who helps others become
-
-A lifelong obedience of Jesus who returned
-
-Others do the same. Okay. Okay. Someone who helps others become a lifelong, obedient follower of Jesus, who in turn helps others do the same. And I hope God helps you read that in my handwriting.
-
-Okay? So again, just to be clear, it's that simple. You don't have to be that gifted. If you can sit down with somebody and read the Bible and do it with them, and even be willing to model it with them, like, you're helping, you're being a disciple, and you're helping make disciples.
-
-And again, when we're making disciples, I love at the end where it says, who in turn helps others do the same. So I want to teach others, no matter who they are, how gifted they are, that they can also do what I'm doing with them, with somebody else.
+Okay? So again, just to be clear, it's that simple. You don't have to be that gifted. If you can sit down with somebody and read the Bible and do it with them, and even be willing to model it with them, like, you're helping, you're being a disciple, and you're helping make disciples. And again, when we're making disciples, I love at the end where it says, who in turn helps others do the same. So I want to teach others, no matter who they are, how gifted they are, that they can also do what I'm doing with them, with somebody else.
 
 So even a lot of times, even in Waco, sometimes I'll have specific discipleship groups, and one of the expectations I'll say at the beginning of starting is, hey, I want to invest in y'all, I love you guys, but I want to tell y'all, this isn't just going to be you and me. My expectation for this is that you are going to find somebody to invest this stuff in as well.
 
@@ -53,23 +41,19 @@ Not because I have anything against them. I still love them. But it's not good f
 
 And I'm okay with people not liking me, but not unnecessarily. If you don't want to actually be a disciple of Jesus, that's totally fine with me. I mean, I wish you wouldn't. It's sad. But I'm fine letting you do your thing until you're ready to. Okay. So another thing about discipleship, we go to Matthew 4, 18-22. Now,
 
-Matthew 4, 18-22. Okay. So it says, And he said to them, Follow me, and I will make you fishers of men.
+> "And he said to them, Follow me, and I will make you fishers of men." Matthew 4:19
 
-So one of the things I want to highlight here is it says, He'll make us fishers of men. Anyone in here been fishing before?
+So one of the things I want to highlight here is it says, He'll make us fishers of men. Anyone in here been fishing before? \[people talking\] But when you fish, I mean, it depends where you fish, but typically when you fish, do you catch one, like, within the first two seconds? Sometimes. Sometimes.
 
-Yes, go, people. Fishing. Fishing. Nice. Fishing. No fishing. Fishing flies out of the soup, though. We'll take you fishing. Well, no promises, but yeah. But when you fish, I mean, it depends where you fish, but typically when you fish, do you catch one, like, within the first two seconds? Sometimes. Sometimes.
+In most places when you fish, do you feel like you usually catch one within the first two seconds? No. No. Thank you, Samuel. So a lot of times, right, like we want to share the gospel, you know, for some of us. Like you go to evangelism, or you do an outreach somewhere, and most people just kind of like had a like aversion to you. They're like, "ah, get away from me", you know or things like that. Or you're like man this is kind of hard like I reached out to a lot of people they didn't want to or like I talked to my friend about it and they were like no I'm good and then but then you find this person you didn't think would want it and they do want it and you're like oh okay okay praise god I didn't think that person was they weren't as gifted but like that's okay.
 
-In most places when you fish, do you feel like you usually catch one within the first two seconds? No. No. Thank you, Samuel. So a lot of times, right, like we want to share the gospel, you know, for some of us. Like you go to evangelism, or you do an outreach somewhere, and most people just kind of like had a like aversion to you. They're like, ah, get away from me.
+But then they become somebody, you start reading the Bible with them, you start modeling what it looks like to see Jesus, to pray, and they want to come, and they want to do that with you, and you get to help develop them, become an obedient follower of Jesus, and then you don't just fish for them, you give them a pole as well, and you say, "hey, why don't you go fishing now too?"
 
-you know or things like that like or you're like man this is kind of hard like i reached out to a lot of people they didn't want to or like i talked to my friend about it and they were like no i'm good and then but then you find this person you didn't think would want it and they do want it and you're like oh okay okay praise god i didn't think that person was they weren't as gifted but like that's okay
+And why don't you just start throwing that out there and see who bites, you know? So discipleship is kind of like that. Like there's been times, I know plenty of stories and I've seen it happen where somebody literally gets dramatically healed. Like I'm talking broken bones, completely healed. And we're like, Hey, like we share the gospel with them. They're like, "nah, I'm good." And you're like, "you just like, God just healed your arm." Like, "yeah, but I don't really feel like living that way. I don't really believe that thing."
 
-But then they become somebody, you start reading the Bible with them, you start modeling what it looks like to see Jesus, to pray, and they want to come, and they want to do that with you, and you get to help develop them, become an obedient follower of Jesus, and then you don't just fish for them, you give them a pole as well, and you say, hey, why don't you go fishing now too?
+And "you're like, you just got healed." But they don't bite when it comes to discipleship. They don't want to follow Jesus. They're grateful that he's a healer. Like in the Bible, you see this. The New Testament, they're like, yeah, he's a prophet. He's a healer. He's kind of like Elijah.
 
-And why don't you just start throwing that out there and see who bites, you know? So discipleship is kind of like that. Like there's been times, I know plenty of stories and I've seen it happen where somebody literally gets dramatically healed. Like I'm talking broken bones, completely healed. And we're like, Hey, like we share the gospel with them. They're like, nah, I'm good. And you're like, you just like, God just healed your arm. Like, yeah, but like, I don't really feel like living that way. I don't really believe that thing.
-
-And you're like, you just got healed. But they don't bite when it comes to discipleship. They don't want to follow Jesus. They're grateful that he's a healer. Like in the Bible, you see this. The New Testament, they're like, yeah, he's a prophet. He's a healer. He's kind of like Elijah.
-
-But I don't want to follow him, though. I'm going to keep my distance from that guy. But then there's times where somebody does get healed, and they're like, yes, tell me about this man Jesus. I want to follow him. And then they're like, I want that. I want to be reeled in. I want to be taught to be a disciple.
+"But I don't want to follow him, though. I'm going to keep my distance from that guy." But then there's times where somebody does get healed, and they're like, yes, tell me about this man Jesus. I want to follow him. And then they're like, I want that. I want to be reeled in. I want to be taught to be a disciple.
 
 And so, if you fish for like two minutes, and you don't catch anything, and you leave, I mean, you need to grow in perseverance, and patience, and discipleship, and in making disciples. You don't just catch fish in like two seconds every time. You don't just watch your neighbor, and you're like, hey, this, and they're like, yes, that's everything I ever wanted, you know?
 
@@ -77,35 +61,31 @@ That's not usually what happens, you know. There's times where that happens, whe
 
 But we have to be patient in discipleship to make disciples. It's funny. There was a guy at our church in Waco. He had all this vision for planning a house church. He's like, I'm going to do it. He's a 20-year-old college student. Just got totally... Or got encountered by God on this trip we had. And he is thrilled about Jesus. He's like...
 
-Someone asks him, hey, do you want to lead a house church? And he's like, I'm going to do it. Let's go. And his vision's like, I'm going to have 40 people at this house church, and worship's going to be amazing, and all this stuff. And he's full of vision for it. And then that year, he spends the whole year, he said, with four and a half people in his life group or house church.
+Someone asks him, hey, do you want to lead a house church? And he's like, "I'm going to do it. Let's go." And his vision's like, "I'm going to have 40 people at this house church, and worship's going to be amazing", and all this stuff. And he's full of vision for it. And then that year, he spends the whole year, he said, with four and a half people in his life group or house church.
 
-And he's like, what the heck, God? I was so excited for everything. I did all the things. I crossed all the X's. I did everything I was supposed to do. And I have four and a half people coming to my house church every week. And half because they showed up once a month out of the weekly house church. And sometimes we call them life groups. So he was like, yeah, I call that my death group year.
+And he's like, "what the heck, God? I was so excited for everything. I did all the things. I crossed all the X's. I did everything I was supposed to do. And I have four and a half people coming to my house church every week." And it's four and a half because they showed up once a month out of the weekly house church. And sometimes we call them life groups. So he was like, "yeah, I call that my death group year".
 
-But what was funny is the things he was praying and the things that he was hearing from God were these bigger things. Well, what happened next year is that did happen. He had like 30, 40 people that were coming. And at the end of that first year, it was only four or five, four and a half people who didn't really want to be disciples, but they wanted to come to house church. And he was in this dance the whole time relationally. He was like, okay, God.
+But what was funny is the things he was praying and the things that he was hearing from God were these bigger things. Well, what happened next year is that did happen. He had like 30, 40 people that were coming. And at the end of that first year, it was only four or five, four and a half people who didn't really want to be disciples, but they wanted to come to house church. And he was in this dance the whole time relationally.
 
-I just asked for five. I pray you give me five disciples. I want to invest in five guys this next year." And that's what he got. He had this group of like about 30 to 40 people that would come, but there was five guys that he had time to invest in, and he invested in those five. And then he invested in them to where he was like, and you're going to invest in people. And then those five invested in 25. And then those 25 started investing in whatever 20, you know, 100, whatever it is, right?
+He was like, "okay, God. I just asked for five. I pray you give me five disciples. I want to invest in five guys this next year." And that's what he got. He had this group of like about 30 to 40 people that would come, but there was five guys that he had time to invest in, and he invested in those five. And then he invested in them to where he was like, and you're going to invest in people. And then those five invested in 25. And then those 25 started investing in whatever 20, you know, 100, whatever it is, right?
 
 And that's how discipleship is supposed to work. It's that multiplication. What five people can do that are investing in a total of 25, and then 25 and 125 is going to be more powerful than five gifted people that do everything for the 200. Does that make sense?
 
-And so we have to learn to be patient in discipleship and not get discouraged. Sometimes we connect our value to how many disciples we have. Or sometimes we connect our value to the outcome of trying to start discipling people. And we have to be patient and perseverant in that. Okay. I want to read that scripture. John 13, 34-35.
+And so we have to learn to be patient in discipleship and not get discouraged. Sometimes we connect our value to how many disciples we have. Or sometimes we connect our value to the outcome of trying to start discipling people. And we have to be patient and perseverant in that. Okay. I want to read that scripture. John 13:34-35.
 
-John 13, 34-35 John 13, 34-35 A new commandment I give to you, that you love one another, just as I have loved you. You also are to love one another,
+> "A new commandment I give to you, that you love one another, just as I have loved you. You also are to love one another. By this, all people will know that you are my disciples if you have love for one another." John 13:34-35
 
-By this, all people will know that you are my disciples if you have love for one another. Let me just read that part one more time. By this, all people will know that you are my disciples if you have love for one another.
+That's an insane promise. There's the practical outworking of we want new people that don't know Jesus to be discipled and to grow and have a relationship with Jesus. But do we know that the spirit of revelation can rest on our relationships if we love one another?
 
-That's an insane promise. There's the practical outworking of we want new people that don't know Jesus to be discipled and to grow and have a relationship with Jesus. But do we know that the spirit of revelation can rest on our relationships if we love one another? Me and Daniel could go to a restaurant in Luzerne
-
-And because we love one another so much, somebody could just watch us talking and see Jesus and be like, I want that. You can come to our table and be like, what's up with y'all? And we'd be like, what do you mean? And we'd be like, there's something about y'all. What is it? And we're like, oh, that's Jesus. We love one another. We actually do. It's not just saying that. We don't just tolerate one another.
+Me and Daniel could go to a restaurant in Luzerne and because we love one another so much, somebody could just watch us talking and see Jesus and be like, I want that. You can come to our table and be like, what's up with y'all? And we'd be like, what do you mean? And we'd be like, there's something about y'all. What is it? And we're like, oh, that's Jesus. We love one another. We actually do. It's not just saying that. We don't just tolerate one another.
 
 You know what I mean? Like that is a discipleship strategy above all strategies is that you actually have love for one another and that we grow in love for one another.
 
-I remember I was at a conference with a thousand Chinese house church leaders from China, and when I don't know their language, I just watched them interact, and it marked my life. I just saw them love one another and interact with one another, and the spirit of revelation rested, and that reeled a way on them.
+I remember I was at a conference with a thousand Chinese house church leaders from China, and when I don't know their language, I just watched them interact, and it marked my life. I just saw them love one another and interact with one another, and the spirit of revelation rested, in that real way on them.
 
 That all I remember saying in my heart was, God, I will die for whatever that is. Like, that is love for one another. And I think God wants that, like, back upon us. Where literally, we don't even have to say anything. Like, the people just watch us live our lives amongst one another. And we're like a magnet for the glory of God. And for people to want to know Jesus. So important.
 
-Okay, another scripture, Jeremiah 31, 34. Jeremiah 31, 34. Jeremiah 31, verse 34.
-
-Okay. It says, Okay.
+Okay, another scripture, Jeremiah 31:34.
 
 So I use this scripture because discipleship is about us helping people learn how to obey Jesus, not us. It's teaching them how to learn from Jesus Himself. And that takes all the pressure off of you. Like I said, you don't have to be that gifted.
 
@@ -225,17 +205,17 @@ This scripture is like, I love this scripture so much. It's so good. It says, I 
 
 Yet no one remembered that poor man. But I say that wisdom is better than might. Though the poor man's wisdom is despised and his words are not heard, the words of the wise, heard and quiet, are better than the shouting of a ruler among fools. Wisdom is better than weapons of war, but one sinner destroys much good.
 
-I just read this a couple years ago, and I was like, this is discipleship. It's the words of the wise heard in quiet. I think we've talked a little bit about the Moravians. We've mentioned the Moravians. They were really like this. Do you know William Wilberforce? People know William Wilberforce in here? Reformationist from England. He ended slavery.
+I just read this a couple years ago, and I was like, this is discipleship. It's the words of the wise heard in quiet. I think we've talked a little bit about the Mauravians. We've mentioned the Mauravians. They were really like this. Do you know William Wilberforce? People know William Wilberforce in here? Reformationist from England. He ended slavery.
 
-He and a group of friends were these abolitionists, which is like people that advocate for freedom of somebody from slavery. And they were the ones in England, him and his friends, that over years of time lived a life like this and saw slavery abolished in England and then the rest of Europe. But most people don't know that Wilberforce was powerfully impacted by the Moravians.
+He and a group of friends were these abolitionists, which is like people that advocate for freedom of somebody from slavery. And they were the ones in England, him and his friends, that over years of time lived a life like this and saw slavery abolished in England and then the rest of Europe. But most people don't know that Wilberforce was powerfully impacted by the Mauravians.
 
-that had a 100-year 24-7 prayer meeting. He had a run-in with the Moravians, and he got baptized in the Holy Spirit, and had powerful interactions with them that really initiated what him and his friends did. But no one remembers the Moravians, just like no one remembers this poor wise man.
+that had a 100-year 24-7 prayer meeting. He had a run-in with the Mauravians, and he got baptized in the Holy Spirit, and had powerful interactions with them that really initiated what him and his friends did. But no one remembers the Mauravians, just like no one remembers this poor wise man.
 
-And John Wesley, he had a powerful encounter along with the Moravians. He was on a ship at sea that they thought was going to get destroyed because there was a storm. And he goes down into the bottom of the boat, and there's a Moravian family just praying and worshiping the peace of God. And he's like, everyone else is freaking out. What are these people doing down here like nothing's happening? But then he realizes they're worshiping.
+And John Wesley, he had a powerful encounter along with the Mauravians. He was on a ship at sea that they thought was going to get destroyed because there was a storm. And he goes down into the bottom of the boat, and there's a Moravian family just praying and worshiping the peace of God. And he's like, everyone else is freaking out. What are these people doing down here like nothing's happening? But then he realizes they're worshiping.
 
-And he ends up having a long couple days of conversation with them because he had gone to seminary school, all these different things. After talking to them, he realized he didn't even think he was saved. So he got born again with Moravians. And then he went back. And then obviously we see him having a huge impact both in England and the Americas, right?
+And he ends up having a long couple days of conversation with them because he had gone to seminary school, all these different things. After talking to them, he realized he didn't even think he was saved. So he got born again with Mauravians. And then he went back. And then obviously we see him having a huge impact both in England and the Americas, right?
 
-But it was the Moravians, again, that were the turning point for this guy. It was the words of wise people that were the Moravians that influenced the influencers. But they don't remember. And a lot of times this is what discipleship is like, right? Discipleship is about investing in a few and challenging them to invest in a few. And then those people challenged other people to invest in a few.
+But it was the Mauravians, again, that were the turning point for this guy. It was the words of wise people that were the Mauravians that influenced the influencers. But they don't remember. And a lot of times this is what discipleship is like, right? Discipleship is about investing in a few and challenging them to invest in a few. And then those people challenged other people to invest in a few.
 
 Right. And then you have no idea like what impact a lot of times that's going to have, you know. And so I like and again, influence, you know, it's not a partiality thing of like we influencing is better and we're like the low key people or something.
 
